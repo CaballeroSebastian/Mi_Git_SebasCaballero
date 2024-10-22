@@ -1,6 +1,6 @@
 Primer Repository by: SebitasCaballero.
 
-Vamos solo santa fe. Vamos rojo
+La Guardia Albiroja Sur
 
 Santa fe (4) - Millonarios (1)
 
