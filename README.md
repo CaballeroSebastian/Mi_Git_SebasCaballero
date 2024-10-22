@@ -1,6 +1,6 @@
 Primer Repository by: SebitasCaballero.
 
-Vamos solo santa fe. Vamos rojo
+Santa Fe de Bogotá D.C
 
 Santa fe (4) - Millonarios (1)
 
